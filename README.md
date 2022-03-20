@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wite nigga
+- 👋 Hi, I’m @white nigga
 
 
 <!---
